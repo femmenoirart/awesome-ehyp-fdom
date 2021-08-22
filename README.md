@@ -9,7 +9,15 @@ To get updates click the watch button in the top left.
 
 Feel free to make copies of this list and reuse for any non-commercial purposes - commercial listings permitted but regulated, it probably won't be here forever.
 
-# Sites of fdoms
+# Pateron only
+* https://www.patreon.com/deepdiscourse
+
+# Youtube only
+
+# Multiple locations
+
+# To Incorporate
+
 mistressshayna /u/shaynadomina
 
 the lady aurora /u/the_lady_aurora
