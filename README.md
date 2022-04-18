@@ -18,7 +18,7 @@ Feel free to make copies of this list and reuse for any non-commercial purposes 
 
 # niteflirt
 
-* femmenoirart found at https://niteflirt.com/Mistress+Salt (Also on reddit as u/velvetsainte)
+* femmenoirart found at https://niteflirt.com/AvaLane (Also on reddit as u/velvetsainte)
 
 # To Incorporate
 
