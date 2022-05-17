@@ -16,10 +16,6 @@ Feel free to make copies of this list and reuse for any non-commercial purposes 
 
 # Multiple locations
 
-# niteflirt
-
-* femmenoirart found at https://niteflirt.com/AvaLane (Also on reddit as u/velvetsainte)
-
 # To Incorporate
 
 mistressshayna /u/shaynadomina
@@ -40,6 +36,8 @@ succulent abbey https://www.niteflirt.com/Succulent%20Abbeys%20Web
 
 supremely channel https://www.niteflirt.com/SUPREMELY%20CHANNEL
 
+ava lane https://niteflirt.com/AvaLane
+
 naughty girl tess /u/naughtygirltess
 
 Shibby /u/kinkyshibby https://shibbydex.com/home
@@ -57,6 +55,8 @@ just mocha /u/JustMocha-
 Impish
 
 Goddess Kyaa https://onlyfans.com/goddesskyaa
+
+Mistress Salt httpsL//niteflirt.com/Mistress+Salt
 
 Mistress Clarissa https://www.niteflirt.com/Mistress+Clarissa+London#goodies
 
